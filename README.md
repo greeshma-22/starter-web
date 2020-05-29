@@ -8,9 +8,10 @@ Sample website with plenty of files for demos
 
 
 ##Purpose
-
+DGASKDGSAKJDHKASJDHKASJDHKASJDHKASDHASKDHAKSJH
 
 ## deplayment
-
+FHAKSJDFHSKDJFHKSDJFHKSDJFHKSDJFH
 
 ## How to contribute
+DHASKFJHKJSDFHKDJFHKDJFHKJ
